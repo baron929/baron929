@@ -150,9 +150,9 @@ I focus on taking software beyond prototypes by designing systems that can be **
 
 **GitHub:** [@baron929](https://github.com/baron929)
 
-**LinkedIn:** [linkedin.com/in/baron929](https://linkedin.com/in/baron929)
+**LinkedIn:** [linkedin.com/in/baron929](https://www.linkedin.com/in/baron-aram-a2305732b/)
 
-**Email:** `your-professional-email@example.com`
+**Email:** cobbs1399@gmail.com
 
 ---
 
